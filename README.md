@@ -3,4 +3,4 @@
 **18th-Aug-2021:** https://transcripts.gotomeeting.com/#/s/cf01b85f2d828a5a0bf293540d11b7bd000b4a55cafd8f9a73cad4395356cae8
 
 ### Daily Wise Attendance Sheets
-**Drive Link:** https://drive.google.com/drive/folders/19DPRmUAvPDIYHDBL8oKicnZjCHEBRV9a
+**Drive Link:** https://drive.google.com/drive/folders/19DPRmUAvPDIYHDBL8oKicnZjCHEBRV9a?usp=sharing
